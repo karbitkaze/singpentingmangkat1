@@ -1,0 +1,2 @@
+# singpentingmangkat1
+belajar!!!
